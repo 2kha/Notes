@@ -1,2 +1,2 @@
 # Notes
-Notes for Various Topics
+Notes for Various Topics in Myanmar Language. 
